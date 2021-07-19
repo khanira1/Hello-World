@@ -1,2 +1,3 @@
 # Hello-World
-new project
+Assalamoalaykum Everyone, 
+ Get ready for new advanture in this platform!!! 
